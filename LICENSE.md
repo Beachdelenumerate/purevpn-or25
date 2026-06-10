@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with PureVPN updated Plugin: static-IP & streaming-optimization, the #1 plugin. Includes static-IP and streaming-optimization for a safer and more
 
 
 
